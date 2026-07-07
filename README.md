@@ -1,3 +1,3 @@
-It's Thong Gooddev ~
+Yeah~ you're goddamn right, I'm a Gooddev ~ 😒😒😒😒😒
 
 ![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
